@@ -1,2 +1,0 @@
-# ATY
-only in almaty
